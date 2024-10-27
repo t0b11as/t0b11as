@@ -33,7 +33,7 @@
 
 ###
 *<p align="left"> BEFORE YOU INTERACT*
-<p align="left">I make Kms/Kys jokes a lot, I have a tendency to be very touchy even if this is a pixel pony game LOL, I'll probably yap your ears off if you mention sum i like, I cover ppl that are pieces of shit in my eyes, I hide and block people for sport for the most miniscule reasons (even making fake candy ends up in a block cuz im a salty mf)</p>
+<p align="left">I make Kms/Kys jokes a lot, I have a tendency to be very touchy even if this is a pixel pony game LOL, I'll probably yap your ears off if you mention sum i like, I cover ppl that are pieces of shit in my eyes, I hide and block people for sport for the most miniscule reasons (even making fake candy ends up in a block cuz im a salty mf),I DONT RESPOND AT ALL TO FUCKING SMALL TALK!! YAP ABOUT SOMETHING ELSE BUT NO FUCKING SMALLTALK OR ELSE I WILL SMASH YOUR FUCKING SKULL INTO THE WALL !!</p>
 
 ###
 *<p align="left"> DO NOT INTERACT*
