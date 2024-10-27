@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">17 || AUDHD + Other || Carrd is still a must read if you wanna know ALL of my DNI, however i dont think a lot of people on PT care abt it :skull: || Editor, Artist, Boyfailure and unhinged :33,, Dont have much else to say LMFAO </p>
+<p align="center">17 || AUDHD + Other || GAY AS FUCK || Carrd is still a must read if you wanna know ALL of my DNI, however i dont think a lot of people on PT care abt it :skull: || Editor, Artist, Boyfailure and unhinged :33,, Dont have much else to say LMFAO </p>
 
 ###
 
