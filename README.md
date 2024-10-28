@@ -14,6 +14,11 @@
 
 ###
 
+<p align="center"> Likes/Dislikes are in my Carrd, im too lazy to make it look good on here :3 </p>
+
+
+###
+
 *<p align="center"> "WE'RE GETTING 20 PERCENT COOLER!" ,, /lyr</p>*
 
 ###
