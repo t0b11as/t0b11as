@@ -34,7 +34,7 @@
 ###
 
 *<p align="left"> INFO*
-<p align="left"> DONT COPY ME ONE TO ONE!! I dont mind inspo but if you copy me down to my color codes it gets uncomfortable, so please dont do that. If i find out you do copy me i will make drama out of it!<br><br>I'm only on safe server until i turn 18, so i apologize for any friends that i might abandon on there after switching to 18+.</p>
+<p align="left"> DONT COPY ME ONE TO ONE!! I dont mind inspo but if you copy me down to my color codes it gets uncomfortable, so please dont do that. If i find out you do copy me i will make drama out of it!<br><br>Used to be active on Safe, switched to 18+ on my 18th bday LOL</p>
 
 ###
 *<p align="left"> BEFORE YOU INTERACT*
