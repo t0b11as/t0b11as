@@ -42,7 +42,7 @@
 
 ###
 *<p align="left"> DO NOT INTERACT*
-<p align="left"> You shit on People with TT/TD, You make skins that can cause people seizures (You probably will kill someone with that ! hope that helps <<3), Uneducated about Otherkinity/Alterhumanity as a whole and think "kinning" is """relating to""" (gtfo brah), uhhh idk just dont be a weirdo or i'll block your ass</p>
+<p align="left"> You shit on People with TT/TD, You make skins that can cause people seizures (You probably will kill someone with that ! hope that helps <<3), Uneducated about Otherkinity/Alterhumanity as a whole and think "kinning" is """relating to""" (gtfo brah), YOUNGER THAN 16 (Anyone i knew before my 18th bday is fine.) uhhh idk just dont be a weirdo or i'll block your ass</p>
 
 ###
 
