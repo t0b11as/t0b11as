@@ -24,6 +24,12 @@
 ###
 
 <div align="center">
+<img src="https://github.com/user-attachments/assets/e23aac7f-edcb-4997-9a89-e9e806c74e00" width="18%"></img> <img src="https://github.com/user-attachments/assets/688e51ea-bd8d-482d-9f9c-96ee1a047253" width="18%"></img> <img src="https://github.com/user-attachments/assets/e23aac7f-edcb-4997-9a89-e9e806c74e00" width="18%"></img> 
+</div>
+
+###
+
+<div align="center">
   <img height="" src="https://64.media.tumblr.com/247b79fa436e3d7a1bdcbfbc19806e86/aa4e877b8e7f4841-f5/s500x750/6802ccb1667a558052a85060637a1e740f457b30.gifv"  />
 </div>
 
@@ -42,7 +48,7 @@
 
 ###
 *<p align="left"> DO NOT INTERACT*
-<p align="left"> You shit on People with TT/TD, You make skins that can cause people seizures (You probably will kill someone with that ! hope that helps <<3), Uneducated about Otherkinity/Alterhumanity as a whole and think "kinning" is """relating to""" (gtfo brah), YOUNGER THAN 16 (Anyone i knew before my 18th bday is fine.) uhhh idk just dont be a weirdo or i'll block your ass</p>
+<p align="left"> You shit on People with TT/TD, You make skins that can cause people seizures (You probably will kill someone with that ! hope that helps <<3), Uneducated about Otherkinity/Alterhumanity as a whole and think "kinning" is """relating to""" (gtfo brah), YOUNGER THAN 16 uhhh idk just dont be a weirdo or i'll block your ass</p>
 
 ###
 
@@ -58,7 +64,3 @@
 
 ###
 
-![](https://komarev.com/ghpvc/?username=t0b11as)
-
-###
-<p align="left"> if you see this whisper "hi kathi" so i can send it to my bestie 
