@@ -50,6 +50,8 @@
   I _used_ to be active on safe server, however after my 18th birthday i switched, likely won't log onto safe that often anymore due to my humor getting me kicked and muted on Safe, lol.
 
   ***Always*** C+H, even if you're a stranger. I don't mind at all if you're a rando just wanting to hide or cuddle for some reason. No need to ask either.
+
+  I Block and Hide <ins> anyone who's on my dni even if we ***havent interacted before.*** </ins> If i see you have shit on your Github/Carrd/Rentry/Strawpage/Whatever that goes completely against my DNI, i will block and hide your ass on PT ***permanently.*** I do not Unblock/Unhide. If i sit on anyone due to my honestly hilariously long Blocklist, then it is what it is.
   
   <img height="" src=https://64.media.tumblr.com/6a61f90d7c0648e70c30cdb772a742f7/ad60d78b5e5f8687-04/s75x75_c1/8e04e10f31d6f9d0014f02132c8e5042546cdeb0.webp>
 
