@@ -56,6 +56,8 @@
 ### $\color{#f1002e}{\textsf{BYI}}$ ₎₎
 Usually ***not*** spoiler free, I occasionally need Tonetags (/S /J /Hj /Lh /P /R in my case.), I make *a lot* of jokes about Killing myself and Killing others, My memory is horrible, Idk i'm just incredibly fucking mentally ill man.
 
+I DO NOT RESPOND TO SMALL TALK!! Oh my god do NOT expect me to talk to you if you only say Hru or sum cuz i WILL IGNORE YOU!!
+
 <ins>also figured i should mention this,</ins> but a lot of the shit i like is shit i've been into for years, so it shouldn't be surprising a good chunk of my interests is still kids-related to a degree. If that makes you feel icky, i get it but getting new interests is hard as shit for me for some reason. :skull:
 **Feel free to block me over this btw LOL**
 
