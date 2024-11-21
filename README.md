@@ -46,6 +46,8 @@
   
 ### $\color{#f1002e}{\textsf{PT SPECIFIC INFO}}$ ₎₎
  I do not mind inspo, but i am incredibly uncomfortable with copying me one-to-one. If i find out you still copy me after being called out, i will hide you.
+
+GOOD GOD I CANNOT HAVE A SET STYLE. You're gonna see me hop between styles a lot, and i'll likely abandon old skins in like a week LOL.
   
   I _used_ to be active on safe server, however after my 18th birthday i switched, likely won't log onto safe that often anymore due to my humor getting me kicked and muted on Safe, lol.
 
