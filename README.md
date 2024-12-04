@@ -1,98 +1,66 @@
-<div align="center">
-  <img height="300" src="https://asdahskdakseioasdaskdhajkheuiahs.carrd.co/assets/images/image01.png?v=c0be22fd"  />
-</div>
-
-### 
-
-<div align="center">
-  <img height="" src="https://github.com/user-attachments/assets/f4fdef8a-b6ec-4749-bcd9-fd14d843ed91"  />
-</div>
-
-###
-
- 
-
-<div align="center">
-  
- 𓏴ㅤㅤ  Tobias   ྐ $\color{#f1002e}{\textsf{꒰ 18 ꒱}}$ ⸝⸝
-  
- ✦﹕AUDHD <ins>***+ Other***</ins>	 ｡ GAY AS FUCK , $\color{#f1002e}{\textsf{DEU}}$/ENG  ུ۪࿑ྀ
-
- ⤹ Editor, Artist, $\color{#f1002e}{\textsf{boyfailure}}$ and unhinged :33 ᶻ 𝘇 𐰁
-</div>
-
-
- 
-
-###
-
-
-
-<div align="center">
-<img src="https://github.com/user-attachments/assets/e23aac7f-edcb-4997-9a89-e9e806c74e00" width="18%"></img>  <img src="https://github.com/user-attachments/assets/688e51ea-bd8d-482d-9f9c-96ee1a047253" width="18%"></img> <img src="https://github.com/user-attachments/assets/e23aac7f-edcb-4997-9a89-e9e806c74e00" width="18%"></img> 
-</div>
-
- 
-
-###
-
-<div align="center">
-  <img height="" src="https://github.com/user-attachments/assets/f4fdef8a-b6ec-4749-bcd9-fd14d843ed91"  />
-</div>
-
-###
-
-<div align="center">
-  
-### $\color{#f1002e}{\textsf{PT SPECIFIC INFO}}$ ₎₎
- I do not mind inspo, but i am incredibly uncomfortable with copying me one-to-one. If i find out you still copy me after being called out, i will hide you.
-
-GOOD GOD I CANNOT HAVE A SET STYLE. You're gonna see me hop between styles a lot, and i'll likely abandon old skins in like a week LOL.
-  
-  I _used_ to be active on safe server, however after my 18th birthday i switched, likely won't log onto safe that often anymore due to my humor getting me kicked and muted on Safe, lol.
-
-  ***Always*** C+H, even if you're a stranger. I don't mind at all if you're a rando just wanting to hide or cuddle for some reason. No need to ask either.
-
-  i am the most clingy mf even on a pixel pony game, you're gonna see my ass cuddled up with my friends a LOT. Doesn't mean anything for me, i just have abandonment issues and cling onto ppl even on pt :3 .
-
-  I Block and Hide <ins> anyone who's on my dni even if we ***havent interacted before.*** </ins> If i see you have shit on your Github/Carrd/Rentry/Strawpage/Whatever that goes completely against my DNI, i will block and hide your ass on PT ***permanently.*** I do not Unblock/Unhide. If i sit on anyone due to my honestly hilariously long Blocklist, then it is what it is.
-  
-  <img height="" src=https://64.media.tumblr.com/6a61f90d7c0648e70c30cdb772a742f7/ad60d78b5e5f8687-04/s75x75_c1/8e04e10f31d6f9d0014f02132c8e5042546cdeb0.webp>
-
-### $\color{#f1002e}{\textsf{BYI}}$ ₎₎
-Usually ***not*** spoiler free, I occasionally need Tonetags (/S /J /Hj /Lh /P /R in my case.), I make *a lot* of jokes about Killing myself and Killing others, My memory is horrible, Idk i'm just incredibly fucking mentally ill man.
-
-I DO NOT RESPOND TO SMALL TALK!! Oh my god do NOT expect me to talk to you if you only say Hru or sum cuz i WILL IGNORE YOU!!
-
-<ins>also figured i should mention this,</ins> but a lot of the shit i like is shit i've been into for years, so it shouldn't be surprising a good chunk of my interests is still kids-related to a degree. If that makes you feel icky, i get it but getting new interests is hard as shit for me for some reason. :skull:
-**Feel free to block me over this btw LOL**
-
-  <img height="" src=https://64.media.tumblr.com/6a61f90d7c0648e70c30cdb772a742f7/ad60d78b5e5f8687-04/s75x75_c1/8e04e10f31d6f9d0014f02132c8e5042546cdeb0.webp>
-
-### $\color{#f1002e}{\textsf{DNI}}$ ₎₎
-***DO NOT INTERACT IF YOU ARE UNDER 18, Should be obvious since im mostly on 18+.*** 
-
-Basic DNI (Homophobes, Transphobes, Zoophiles, Pedos/"MAPs", etc) Proshipper/Profic, Loli/Shotacon (Pedos), Truscum/Transmed, Radinclus, Endo System or supporter, KFF/Kin for fun/kinnie or Supporter.
-Disrespect TT/TD, Won't listen if someone tells you your skin can cause seizures.
-
-  <img height="" src=https://64.media.tumblr.com/6a61f90d7c0648e70c30cdb772a742f7/ad60d78b5e5f8687-04/s75x75_c1/8e04e10f31d6f9d0014f02132c8e5042546cdeb0.webp>
-
-### Not gonna add my interests, cuz im way too fucking lazy to. Maybe someday.
-
-</div>
-
-###
-
-<div align="center">
-  <img height="" src="https://github.com/user-attachments/assets/f4fdef8a-b6ec-4749-bcd9-fd14d843ed91"  />
-</div>
-
-###
-
-<div align="center">
-  <img height="300" src="https://asdahskdakseioasdaskdhajkheuiahs.carrd.co/assets/images/image02.png?v=c0be22fd"  />
-</div>
-
-###
 
 ![](https://hit.yhype.me/github/profile?user_id=180023587)
+
+<div align="center">
+
+![Divider github 2](https://github.com/user-attachments/assets/a827569d-2ba8-4036-8a83-27982735b1d0)
+
+![Github banner](https://github.com/user-attachments/assets/0448b1ab-51c2-4b05-9c32-a4395d6c6a9f)
+
+
+</div>
+
+<div align="center">
+  
+#### 𓏴ㅤㅤ  Tobias   ྐ $\color{#9b3b33}{\textsf{꒰ 18 ꒱}}$ ⸝⸝
+  
+#### ✦﹕AUDHD <ins>***+ Other***</ins>	 ｡ GAY AS FUCK , $\color{#9b3b33}{\textsf{DEU}}$/ENG  ུ۪࿑ྀ
+
+#### ⤹ Editor, Artist, $\color{#9b3b33}{\textsf{boyfailure}}$ and unhinged :33 ᶻ 𝘇 𐰁
+
+#### SIGN MY ATABOOK.
+
+</div>
+
+<div align="center">
+
+![Divider github 3](https://github.com/user-attachments/assets/0f72b677-aac2-4802-ba79-056ee4c0d3dc)
+
+###
+
+### $\color{#9b3b33}{\textsf{→ BYI ₎₎ ∿}}$ 
+<p align="center">I make a ungodly amount of Kms/Kys jokes<br>I DO NOT respond to SMALL TALK If you have something to say just SAY IT, im too autistic for your shit.<br> I'm severly mentally unstable so i might be cold one second and clingy the next.<br> A lot of the things i like are things i've been into since i was a kid, so, unsurprisingly, a lot of my interests might come off as 'childish'.<br>
+
+![Divider github 3](https://github.com/user-attachments/assets/0f72b677-aac2-4802-ba79-056ee4c0d3dc)
+
+### $\color{#9b3b33}{\textsf{→ DNI ₎₎ ∿}}$ 
+***MINORS DO NOT INTERACT, Duh. People i met as a minor dont count.***
+
+<p align=center>Basic DNI (Homophobes, Transphobes, Zoophiles, Pedos/"MAPs", etc)<br>Proshipper/Profic<br>Loli/Shotacon (Pedos)<br>Truscum/Transmed<br> Radinclus<br>Endo System or supporter<br> KFF/Kin for fun/kinnie or Support these idiots.<br> Disrespect TT/TD.
+
+Probably more shit that i could add here, but i'm too lazy to.
+
+![Divider github 3](https://github.com/user-attachments/assets/0f72b677-aac2-4802-ba79-056ee4c0d3dc)
+
+
+### $\color{#9b3b33}{\textsf{→ PT SPECIFIC INFO ₎₎ ∿}}$ 
+
+<p align="center">Inspo is fine, Just dont copy me one to one or just recolor my ponies彡<br>I'm mostly at docks or the surrounding areas around it 彡<br>I'm only on 18+, likely wont be on safe for a while 彡<br>C+H For everyone, dont have to ask either 彡<br>I'm clingy af even in this pixel pony game- <br>ㅤ- you're gonna see me cuddle up friends or other people a lot 彡<br>I BLOCK AND HIDE A FUCK TON, -<br>-so i'll probably end up covering people on accident every now and then.彡</p>
+
+![Divider github 3](https://github.com/user-attachments/assets/0f72b677-aac2-4802-ba79-056ee4c0d3dc)
+
+
+### $\color{#9b3b33}{\textsf{→ INTERESTS ₎₎ ∿}}$ 
+
+<p align=center> Games; Sky: cotl, Muse dash, Stardew Valley , Slime Rancher, Pokemon, Animal Crossing, Zelda,<br>
+Anime; My deer friend nokotan, Haikyuu, some other anime i forgot<br>
+Music; Pain (band), Negative 25, Koethe, Eisbrecher,<br>
+Vtubers; Rin Penrose, Lucius Merryweather, some other unlisted ones.(casual watcher)<br>
+Also like ninjago but idk where to put that LMFAO <br>
+
+
+![Divider github 1](https://github.com/user-attachments/assets/5b8c1bca-efbb-4ed6-bf55-ef7117b6d395)
+
+
+
+</div>
