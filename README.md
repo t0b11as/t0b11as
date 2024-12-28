@@ -28,9 +28,9 @@
 ### $\color{#a11d12}{\textsf{→ DNI.}}$ 
 ***MINORS DO NOT INTERACT, Duh. People i met as a minor dont count.***
 
-<p align=center>Basic DNI (Homophobes, Transphobes, Zoophiles, Pedos/"MAPs", etc)<br>Proshipper/Profic<br>Loli/Shotacon (Pedos)<br>Truscum/Transmed<br> Radinclus<br>Endo System or supporter<br> KFF/Kin for fun/kinnie or Support these idiots.<br> Disrespect TT/TD.
+<p align=center>Basic DNI (Homophobes, Transphobes, Zoophiles, Pedos/"MAPs", etc)<br>Proshipper/Profic<br>Loli/Shotacon (Pedos)<br>Truscum/Transmed<br> Radical Inclusionist (support contradictory labels, etc.) or Exclusionist (Exclude nonbinary people, pansexuals, etc.) <br>Endo System or supporter<br> KFF/Kin for fun/kinnie or Support these idiots.<br> Disrespect TT/TD.
 
-Probably more shit that i could add here, but i'm too lazy to.
+Probably more shit that i could add here, but i'm too lazy to. ALSO I KNOW A GOOD CHUNK OF THIS SHIT IS FROM INCREDIBLY SPECIFIC CORNERS OF THE INTERNET, I was WAYY too deep into discourse when i was like 12-16. Im so sorry for being chronically online 💔
 
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
