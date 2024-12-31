@@ -16,7 +16,7 @@
 [ATABOOK](https://t0b11as.atabook.org/) $\color{#a11d12}{\textsf{⇚SIGN IT!!}}$
 
 
-[Pony dump for the skins i have with song names](https://t0b11asmusicponydump.straw.page/)
+[Pony dump for the skins i have with song names](https://t0b11asmusicponydump.straw.page/) $\color{#a11d12}{\textsf{Holy shit i hate strawpage as a desktop user, how tf do u all like this shit..}}$
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
