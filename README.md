@@ -18,6 +18,8 @@
 
 [Pony dump for the skins i have with song names](https://t0b11asmusicponydump.straw.page/) $\color{#a11d12}{\textsf{Holy shit i hate strawpage as a desktop user, how tf do u all like this shit..}}$
 
+[Strawpage, only real use is for drawings and music u have more info on github <3](https://gayjago.straw.page/)
+
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
 
