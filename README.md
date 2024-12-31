@@ -4,7 +4,7 @@
 ![](https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420)
 
 
-![GITHUB BANNER NINJAGO](https://github.com/user-attachments/assets/bbccd619-6586-4634-a83f-8480adaf5fe9)
+![](https://github.com/user-attachments/assets/bbccd619-6586-4634-a83f-8480adaf5fe9)
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
@@ -14,6 +14,7 @@
 #### ⤹ Editor, Artist, $\color{#a11d12}{\textsf{boyfailure}}$ and unhinged ᵎᵎ
 
 [ATABOOK](https://t0b11as.atabook.org/) $\color{#a11d12}{\textsf{⇚SIGN IT!!}}$
+[Pony dump for the skins i have with song names](https://t0b11asmusicponydump.straw.page/)
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
