@@ -24,7 +24,10 @@
 
 
 ### $\color{#a11d12}{\textsf{→ BYI.}}$ 
-<p align="center">I make a ungodly amount of Kms/Kys jokes<br>I DO NOT respond to SMALL TALK If you have something to say just SAY IT, im too autistic for your shit.<br> I'm severly mentally unstable so i might be cold one second and clingy the next.<br>I HAVE ABSOLUTELY ATROCIOUS MEMORY, if i forget who you are im so sorry bro<br>Idk man im just a total trainwreck.<br>
+<p align="center">I make a ungodly amount of Kms/Kys jokes<br>I DO NOT respond to SMALL TALK If you have something to say just SAY IT, im too autistic for your shit.<br> I'm severly mentally unstable so i might be cold one second and clingy the next.<br> I have anger issues and might just fly off the handle over something miniscule <br> I HAVE ABSOLUTELY ATROCIOUS MEMORY, if i forget who you are im so sorry bro<br>Idk man im just a total trainwreck.
+
+
+
 
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
@@ -37,6 +40,7 @@
 
 Probably more shit that i could add here, but i'm too lazy to. ALSO I KNOW A GOOD CHUNK OF THIS SHIT IS FROM INCREDIBLY SPECIFIC CORNERS OF THE INTERNET, I was WAYY too deep into discourse when i was like 12-16. Im so sorry for being chronically online 💔
 
+I'm gonna block ppl if they say stupid shit that just makes me unreasonable angry aswell by the way, i dont wanna look at profiles that make me wanna rip out someones throat <3
 
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
