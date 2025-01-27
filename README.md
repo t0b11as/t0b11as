@@ -55,7 +55,7 @@ I'm gonna block ppl if they say stupid shit that just makes me unreasonable angr
 
 ### $\color{#a11d12}{\textsf{→ INTERESTS.}}$ 
 
-<p align=center> Games; Muse dash, Stardew Valley , Slime Rancher, Pokemon, Animal Crossing, Zelda,<br>
+<p align=center> Games; Muse dash, Stardew Valley , Slime Rancher, Pokemon, Animal Crossing, Zelda,Genshin Impact [love hate relationship tbh]<br>
 Anime; My deer friend nokotan, Haikyuu, some other anime i forgot abt.<br>
 Music; Pain (band), Negative 25, Koethe, Eisbrecher,<br>
 Vtubers; Rin Penrose, Lucius Merryweather, some other unlisted ones.(casual watcher)<br>
