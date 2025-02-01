@@ -20,6 +20,8 @@
 
 [Strawpage, only real use is for drawings and music u have more info on github <3](https://gayjago.straw.page/)
 
+![](https://komarev.com/ghpvc/?username=t0b11as&color=red)
+
 <img src="https://github.com/user-attachments/assets/512daa43-bb56-4dc5-a488-6596bd236420" width="800">
 
 
